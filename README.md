@@ -1,0 +1,2 @@
+# Appletlar-
+Uzbek 
